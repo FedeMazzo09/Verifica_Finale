@@ -1,1 +1,0 @@
-# Verifica_Finale
